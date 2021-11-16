@@ -1,0 +1,1 @@
+percy jackson son of the olympian god poseidon is the friend of the satyr and annabeth 
